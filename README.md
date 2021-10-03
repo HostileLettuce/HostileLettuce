@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @HostileLettuce
+- 👀 I’m interested in animals but especially dogs and computers. 
+- 🌱 I’m currently learning a lot since I'm in college but CS wise, Java.
+- 📫 How to reach me: I'm not sure yet. I don't have anything to share so I doubt anyone will see this. 
