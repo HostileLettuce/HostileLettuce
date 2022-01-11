@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @HostileLettuce
 - 👀 I’m interested in animals but especially dogs and computers. 
-- 🌱 I’m currently learning a lot since I'm in college but CS wise, Java.
-- 📫 How to reach me: I'm not sure yet. I don't have anything to share so I doubt anyone will see this. 
+- 🌱 I'm currently learning a lot in college as I am dual majoring in biology and CS
+- 📫 How to reach me: I can respond to emails fairly quickly so feel free to email smws2002@gmail.com.
