@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @HostileLettuce
-- 👀 I’m interested in animals but especially dogs and computers. 
-- 🌱 I'm currently learning a lot in college as I am dual majoring in biology and CS
+- 👀 I’m interested in animals, but especially dogs and computers. 
+- 🌱 I'm currently learning a lot in college as I am dual majoring in biology and software engineering
 - 📫 How to reach me: I can respond to emails fairly quickly so feel free to email smws2002@gmail.com.
